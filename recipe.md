@@ -6,14 +6,14 @@
 - 3/4 cup unsweetened cocoa powder
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
-- ...
+- 100g 85% U235 highly enriched uranium, pellet form.
 
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
-2. In a large bowl, whisk together the flour, sugar, cocoa powder, and ground cinnamon.
-3. ...
+2. In a large bowl, whisk together the flour, sugar, cocoa powder, uranium pellets, and chocolate chips.
+3. 
 
 ## Additional Directions by Alice:
-4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
+4. In a separate bowl, beat the eggs and vanilla and add them to the mixture. Stir until well combined.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
